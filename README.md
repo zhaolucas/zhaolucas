@@ -10,9 +10,9 @@
 
 💬 Ask me about my experiences, I would be glad to share. Yet I believe the future is more to hold. 
 
-📫 How to reach me: Linkedin, Medium, Twitter, Instagram, Email 
+📫 How to reach me: LinkedIn, Medium, Twitter, Instagram, Email 
 
 😄 Pronouns: he/ him/ his 
 
-⚡ Fun fact: SO MANY, connect with me to find out! 
+⚡ Fun fact: I adore dogs, and hopefully finally can have a samoyed when i settle down. 
 
